@@ -54,7 +54,7 @@
 
 ### Nord
 
-![[Pasted image 20250901164950.png]]
+![[nord.png]]
 
 Option 1 : Trip autour de Sapa
 - Jeudi soir : Train de Nuit (23:30 -> 06:00)
