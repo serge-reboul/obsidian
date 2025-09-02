@@ -34,7 +34,59 @@
 - https://www.indochina-junk.com/ --> mail sent
 	- bateaux petits : 4 chambre ou 10 chambres --> Prix ???
 	- Halong Bay and Bai Tu Long Bay Cruise : https://www.indochina-junk.com/halong-bay-bai-tu-long-bay-cruise-3-days-2-nights/
-	- sur bateau : Prince Junk  (4 cabins) or Dragon’s Pearl Junk  (10 cabins)	- 
+	- sur bateau : Prince Junk  (4 cabins) or Dragon’s Pearl Junk  (10 cabins)
+
+> Answers : 
+> 
+> Warm greetings from Indochina Junk, Halong, Vietnam!
+> 
+> First of all, I would like to thank you very much for your kind interest in our service.
+> 
+> My name is Viet (Mr) and I am honored to be your travel advisor.
+> 
+> Regarding your request for the 3 days 2 nights cruise in Bai Tu Long Bay (the furthest and least touristy area in the Halong Bay Complex), according to the availability of our boats, I would like to recommend the following options:
+>
+> At the moment we have not published the official price for 2026 yet, however as expected the price would increase 5 – 8% compared to 2025. If you make the reservation and pay the deposit within September 2025, I am pleased to confirm the 2025 price as below.
+>
+> For the 3 days 2 nights cruise, I am proud to present our 2 strengths that other companies do not have:
+> - You do not need to transfer to another small boat for the activities on the 2nd day. You will take only one boat for all 3 days of cruising.
+> - You will have the chance to have a barbecue lunch on a wild beach in the bay just for your group.
+>
+> **Option 1** : Sharing wooden boat Dragon's Pearl (10 cabins, maximum for 20 people) => available on April 19th
+> Price per person : 360 USD
+> 
+> TOTAL PRICE : 1,440 USD/2 Deluxe Double cabins for 4 persons – included the promotion.
+> - Learn more about this boat : https://www.indochina-junk.com/dragons-pearl-junk/  
+> - Click here for more photos :  https://flic.kr/s/aHskNC9U6S
+> - Itinerary : https://www.indochina-junk.com/halong-bay-bai-tu-long-bay-cruise-3-days-2-nights/
+>
+> **Option 2** : Sharing wooden boat Prince (4 cabins, maximum for 8 people) => available on April 20th. Price per person : 410 USD
+> 
+> TOTAL PRICE : 1,640 USD/2 Deluxe Double cabins for 4 persons – included the promotion.
+> - Learn more about this boat : https://www.indochina-junk.com/prince-junk/
+> - Click here for more photos : https://flic.kr/s/aHBqjApTsU  
+> - Itinerary: https://www.indochina-junk.com/halong-bay-bai-tu-long-bay-cruise-3-days-2-nights/
+>
+> **Option 3** : Sharing luxury boat Dragon Legend (24 large luxury cabins with the bathtub in the bathroom, maximum for 48 people) => available on April 20th. Price per person : 405 USD
+> 
+> TOTAL PRICE : 1,620 USD/2 Deluxe Double cabins for 4 persons – included the promotion.
+>- Learn more about this boat : https://www.dragonlegendcruise.com/ship/
+>- Click here for more photos :  https://flic.kr/s/aHskSfmZqh
+>- Itinerary: https://www.dragonlegendcruise.com/3-day-2-night-cruise/
+>
+> Rates include round trip transfer by sharing luxury van (Pick up and drop off at your hotel in Hanoi Old Quarter), welcome drinks, all meals on board, English-speaking guide on board, kayaking and entrance fees, insurance on board, water puppet show.
+> 
+> ---
+> 
+> After the cruise, if you would like to go to Ninh Binh (around 200km – 3.5 hours driving), there are 2 options:
+> - Local bus – see picture in attachment (good quality vehicle but just correct service), pick up at 11.45 – 11.50 at our port – drop off at around 16.00 the hotel in Tam Coc/Hoa Lu/Trang An è  no additional costs.
+> - Private van / pick up at your disembarking at 11.30 – drop off at your hotel at around 15.30 è extra charge of 70 USD in total. In this case you will no longer pass by Yen Duc village for the water puppet show (included in the program) because this village located on the way back to Hanoi.
+>
+> HOW TO BOOK?
+> 
+> When you are interested in booking, we will send you confirmation details and an online payment link for the deposit of 50% of the total price. Please note that 4% bank charges will be applied. The remaining amount can be paid when you arrive in Halong.
+
+
 
 - www.bhayacruises.com --> mail sent
 	- Bateaux petits : 5 chambre : Bhaya Legend --> 2 cabine  3 jour 2 nuit, Bay Halong - 2640 $ ( aka 660 $ / personne pour les 3 jours avec transport )
