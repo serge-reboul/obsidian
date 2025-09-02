@@ -52,9 +52,12 @@
 	- Bai Tu Long Bay Swan Cruises 3 Days 2 Nights 
 	- https://swancruiseshalong.com/itinerarie/bai-tu-long-bay-swan-cruises-3-days-2-nights
 
+
+See [more here](Vietnam_Cruise.md)
+
 ### Nord
 
-![[nord.png]]
+<img src="nord.png" />
 
 Option 1 : Trip autour de Sapa
 - Jeudi soir : Train de Nuit (23:30 -> 06:00)
@@ -77,6 +80,9 @@ Option 3 : 4 jours autour de Hoang Su Phi
 - Lundi  – Retour
 - Hotel beaucoup plus root, transfer / route assez longue : 8h
 
+See [more here](Vietnam_Nord.md)
+
+
 ### Hanoi
 
 Quartier de Hoan Kiem
@@ -92,11 +98,17 @@ https://www.tripadvisor.fr/Hotels-g293924-Hanoi-Hotels.html
 - La Siesta Classic Ma May Hotel - 102 € / nuit et par chambre
 	- https://www.tripadvisor.fr/Hotel_Review-g293924-d7180030-Reviews-La_Siesta_Classic_Ma_May_Hotel-Hanoi.html
 
+See [more here](Vietnam_Hanoi.md)
 
 ### Nimh Binh
 
 A voir
 
+See [more here](Vietnam_NimhBinh.md)
+
 ### Hué
 
 A voir
+
+See [more here](Vietnam_Hue.md)
+
