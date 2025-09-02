@@ -31,7 +31,7 @@
 
 ### Croisière
 
-- https://www.indochina-junk.com/ --> mail sent
+#### https://www.indochina-junk.com/ --> mail sent
 	- bateaux petits : 4 chambre ou 10 chambres --> Prix ???
 	- Halong Bay and Bai Tu Long Bay Cruise : https://www.indochina-junk.com/halong-bay-bai-tu-long-bay-cruise-3-days-2-nights/
 	- sur bateau : Prince Junk  (4 cabins) or Dragon’s Pearl Junk  (10 cabins)
@@ -88,18 +88,18 @@
 
 
 
-- www.bhayacruises.com --> mail sent
+#### www.bhayacruises.com --> mail sent
 	- Bateaux petits : 5 chambre : Bhaya Legend --> 2 cabine  3 jour 2 nuit, Bay Halong - 2640 $ ( aka 660 $ / personne pour les 3 jours avec transport )
 		-  With its spacious suite and quality facilities, the Bhaya Legend Private Cruise is a marriage between traditional Asian artistry and modern occidental style, a dream ship purpose-built to create magical and unforgettable memories.
 		- The 20-square-meter premier suite is fully equipped with high-class hand-made furniture and a well-appointed en-suite bathroom. The suite features its own private balcony to enjoy magical views of Halong Bay.
 		- Air Conditioner / Wifi in Common Area / King Size Bed / Private Balcony / Telephone / Walk-in Shower / Toiletries / Towels / Hair Dryer
 	- https://bhayacruises.com/halong-bay-cruises/3-day-2-night-tour/3-days-private-cruise-bai-tu-long-bay-package?check_in_date=2026-04-21&cabins=2_0_0%2C2_0_0
 
-- www.alisacruise.com --> mail sent
+#### www.alisacruise.com --> mail sent
 	- Bateau pas petit : Alisa Premier Cruise 22 room - 2 x 644 $ + 140 $ (transfer) == 1428 $ 
 	- https://www.alisacruise.com/en/tour/alisa-premier-cruise-3-day-2-nights
 
-- www.swancruiseshalong.com --> mail sent
+#### www.swancruiseshalong.com --> mail sent
 	- Bateau pas petit --> Prix ???
 	- Bai Tu Long Bay Swan Cruises 3 Days 2 Nights 
 	- https://swancruiseshalong.com/itinerarie/bai-tu-long-bay-swan-cruises-3-days-2-nights
@@ -111,7 +111,7 @@ See [more here](Vietnam_Cruise.md)
 
 <img src="nord.png" />
 
-Option 1 : Trip autour de Sapa
+#### Option 1 : Trip autour de Sapa
 - Jeudi soir : Train de Nuit (23:30 -> 06:00)
 - Vendredi : Transport vers hotel, ballade dans rizière, repos
 	- Hotel Laxsik Ecolodge Sapa : 90€ / nuit // https://www.tripadvisor.fr/Hotel_Review-g311304-d19354347-Reviews-Laxsik_Ecolodge_Sapa-Sapa_Lao_Cai_Province.html
@@ -119,7 +119,7 @@ Option 1 : Trip autour de Sapa
 - Dimanche: Excursion marché de Bac Ha (⚠️ 2 x 3h de route)
 - Lundi : Randonnée puis train de nuit ( 21:30 -> 05:30)
 
-Option 2 : 4 jours en famille au Cinnamon Ecolodge en détails --> request  sent
+#### Option 2 : 4 jours en famille au Cinnamon Ecolodge en détails --> request  sent
 - Vendredi – Départ d’Hanoi (Transfer = 3h30/4h) et fin de journée tranquille
 - Samedi – Randonnée le matin, déjeuner chez l’habitant et fin d’après-midi tranquille
 - Dimanche – Marché des minorités - Bac Ha
@@ -159,8 +159,7 @@ Answer from Lodge :
 > Gioi
 
 
-
-Option 3 : 4 jours autour de Hoang Su Phi
+#### Option 3 : 4 jours autour de Hoang Su Phi
 - Vendredi – Départ d’Hanoi et fin de journée tranquille
 - Samedi – Randonnée
 - Dimanche – Marché des minorités
