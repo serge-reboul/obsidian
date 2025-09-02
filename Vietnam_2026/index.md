@@ -125,6 +125,41 @@ Option 2 : 4 jours en famille au Cinnamon Ecolodge en détails --> request  sent
 - Dimanche – Marché des minorités - Bac Ha
 - Lundi  – On coupe de la cannelle et on rentre
 
+Answer from Lodge : 
+> Hello Serge, 
+> 
+> Greetings of the day from Cinnamon Eco Lodge. Thank you for your message. My name is Gioi - the owner of the Lodge. I would like to answer your questions and give you some information about my place. 
+> 
+> My lodge is located in a small unique village which is far away from touristic areas, there you can see real local life and meeting friendly local people as well as enjoy > the beauty of nature with mountains and rice fields. 
+> 
+> Yes we have availability for you from 24th to 27th April 2026. Following your request, I would like to suggest this package: 
+> 
+> Day 1: pick you up from Hanoi by shared limousine car ( 3,5hours) to Bao Ha, then a private car from there to my lodge ( 1 hour) . Arrive my lodge for lunch, rest and do a walk in the afternoon. 
+> 
+> Day 2: do a fullday trek to visit another Tay village, there you can see beautiful mountains and rice fields, swim in a natural waterfall, have lunch in the village and transfer back to y lodge in the afternoon by car. The trek is about 12-15km. 
+> 
+> Day 3: visit Bac Ha Sunday market. 
+> 
+> Day 4: join cinnamon harvesting tour in the morning to get to know about cinnamon plantations - the main business of local. Have lunch and leave cinnamon eco lodge at 14:30 to return Hanoi by shared limousine car and private car. 
+> 
+> The suggested package costs 725usd for 2 people. 
+> 
+> It includes: 
+> - Room: 1 bungalow x 3 nights at Cinnamon Eco Lodge 
+> - Transport from and return Hanoi ( shared limousine car and private car) 
+> - Full meals
+> - Activities with an English speaking tour guide: trekking , cinnamon harvesting tour.
+> - Car support on the full day trek 
+> - Water for drinking: 1,5l/person/day
+> 
+> Please feel free to contact me anytime if you need any further information. 
+> 
+> Best regards, 
+> 
+> Gioi
+
+
+
 Option 3 : 4 jours autour de Hoang Su Phi
 - Vendredi – Départ d’Hanoi et fin de journée tranquille
 - Samedi – Randonnée
