@@ -104,6 +104,50 @@
 	- Bai Tu Long Bay Swan Cruises 3 Days 2 Nights 
 	- https://swancruiseshalong.com/itinerarie/bai-tu-long-bay-swan-cruises-3-days-2-nights
 
+> Dear Mr. Serge Reboul,
+> 
+> Warmest greetings from Swan Cruises & Sena Cruises. Thank you so much for considering our cruises > for your vacation.
+> 
+> Based on your request & our cruise availability, we're happy to offer you: 
+> - Cruise name: Swan Cruises Bai Tu Long Bay
+> - Itinerary: 3D2N
+> - Travel date: 20 Apr 2025
+> - Total guests: 02
+> - Room type: 01 Deluxe window room
+> - Special offer: 580 USD/room
+> 
+> The condition of the booking is 50% of the total payment will be deposited upon confirmation. > Balance is made 05 - 07 days before the check-in date.
+> 
+> Cancelation term (Standard): Swan Cruises
+> 
+> For more details about itineraries: Swan Cruises sails Halong & Bai Tu Long Bay: 2 days 1 night > cruise & 3 days 2 nights cruise.
+> 
+> Tour inclusions:
+> - Tour guide (English speaking)
+> - All entrance fees & sightseeing tickets
+> - Full meals on board: breakfast, lunch & dinner
+> - Cooking class
+> - Kayaking
+> - Welcome drink, 02 bottles of water in the cabin
+> - Shuttle bus Hanoi Old Quarter - Ha Long (one way)
+> - Shuttle bus Ha Long - Ninh Binh (one way)
+> 
+> Tour exclusions:
+> 
+> - Personal expenses: Spa, laundry, beverages,...
+> - Flight ticket
+> - Visa arrangement
+> - Surcharge on public holidays (Christmas Eve, New Year's Day, Lunar New Year,...)
+> - All services are not mentioned in the Inclusions
+> 
+> We have many promotion packages to save your travel costs in Vietnam if you book combined with our > cruises. Here is the link for reference: Click here.
+> 
+> We wish you a nice day and look forward to hearing from you soon.
+> 
+> Regards,
+> 
+> Pallie L
+
 
 See [more here](Vietnam_Cruise.md)
 
