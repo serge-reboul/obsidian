@@ -1,1 +1,2 @@
-- [VietNam 2026](Vietnam_2026/index.md)
+- [VietNam 2026, without Hué](Vietnam_2026_v2/index.md)
+- [VietNam 2026, with Hué](Vietnam_2026/index.md)
